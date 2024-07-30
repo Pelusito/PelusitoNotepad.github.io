@@ -1,2 +1,2 @@
-PelusitoNotepad is a Notepad.
-What did you expect?
+THIS VERSION IS NOT AVAILABLE
+PLEASE CLICK LATEST
